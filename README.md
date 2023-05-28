@@ -14,3 +14,7 @@
 
 ~ Portal 1 & 2
 
+~ Persona 5 Royal
+
+~ Super Mario Odyssey
+
