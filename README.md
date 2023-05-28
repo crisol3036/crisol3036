@@ -1,16 +1,16 @@
-### Hi there 👋
+### fav games ever
 
-<!--
-**crisol3036/crisol3036** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+1 ~ Zelda Breath of the Wild
 
-Here are some ideas to get you started:
+2 ~ The Witcher 3 + Blood & Wine
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+3 ~ Dark Souls 3 + Elden Ring
+
+---
+
+~ Stardew Valley
+
+~ Pokémon Ruby
+
+~ Portal 1 & 2
+
