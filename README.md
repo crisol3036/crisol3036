@@ -1,4 +1,4 @@
-### fav games ever :coffee:
+## fav games ever :coffee:
 
 1 ~ Zelda Breath of the Wild
 
@@ -17,4 +17,3 @@
 ~ Persona 5 Royal
 
 ~ Super Mario Odyssey
-
