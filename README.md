@@ -16,4 +16,6 @@
 
 ~ Persona 5 Royal
 
+~ Mirror's Edge Catalyst
+
 ~ Super Mario Odyssey
